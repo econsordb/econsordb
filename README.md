@@ -5,4 +5,4 @@ Für meine persönlichen Projekte, check [hier](https://github.com/dennisbuchwal
 
 LinkedIn: [Hier](https://de.linkedin.com/in/dennisbuchwald) verbinden! 🌐
 
-Dank für den Besuch! 💖
+Danke für den Besuch! 💖
